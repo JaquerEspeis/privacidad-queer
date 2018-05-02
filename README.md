@@ -11,7 +11,7 @@ quienes son.
  * [Reconocimientos y créditos](reconocimientos-creditos.md)
  * [Acerca de este libro](acerca-del-libro.md)
  * [Acerca de las autoras](acerca-de-autoras.md)
- * [¿Quien debería leer este libro?][quien-deberia-leer.md]
+ * [¿Quien debería leer este libro?](quien-deberia-leer.md)
 
 ## Mantenedor
 
