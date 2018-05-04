@@ -12,6 +12,7 @@ quienes son.
  * [Acerca de este libro](acerca-del-libro.md)
  * [Acerca de las autoras](acerca-de-autoras.md)
  * [¿Quien debería leer este libro?](quien-deberia-leer.md)
+ * [Privacidad, perversión y poder, *por Ada Collins*](privacidad-perversion-poder.md)
 
 ## Mantenedor
 
