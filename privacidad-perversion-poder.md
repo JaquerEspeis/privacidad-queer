@@ -22,10 +22,10 @@ ansiedad, entonces hago lo que puedo para estar a gusto conmigo misma.
 Dejo que mi lado femenino juegue en ocasiones especiales. Cuando estoy elevada
 por mi misma en un vestido de seda que abraza mis curvas y sólidos tacones
 negros de preferencia con muchas tiras. Sumando esto a mi cabello oscuro y mi
-naturaleza seria, no me toman por una chica que no sabe lo que quiere. Los no
-iniciados, los que miserablemente no tienen propietaria, me ven por lo que soy:
+naturaleza seria, no me toman por una chica que no sabe lo que quiere. Las no
+iniciadas, las que miserablemente no tienen propietaria, me ven por lo que soy:
 una persona dominante con una figura de reloj de arena que está feliz de
-infligir dolor en un compañero.
+infligir dolor en una acompañante.
 
 Los hombres sumisos pueden ser volátiles. Primero, tienden a desesperar rápido
 al no encontrar una mujer dominante a la que servir, cayendo en el hábito de
@@ -35,8 +35,8 @@ dominante será capaz de levantarles de su misera y hacia el éxtasis. Por
 supuesto, hay miles de formas de hacer un mal emparejamiento, y está en la
 dominante mostrar un poco de control.
 
-Los hombres sumisos dicen que «sólo quiere obedecer a una mujer», pero eso
-ligeramente cierto. Cuando una fantasía se refina, sola, por décadas, se
+Los hombres sumisos dicen que «sólo quieren obedecer a una mujer», pero eso
+no es del todo cierto. Cuando una fantasía se refina, sola, por décadas, se
 solidifica en algo que ningún humano puede habitar. Una mujer dominante es
 tratada como un Xbox - un objeto pulcro esperando el guión de alguien más. Las
 mujeres dominantes no aceptan fácilmente cualquier tipo de inserción. El arte de
@@ -64,7 +64,7 @@ pagar el precio como una idólatra en el Viejo Testamento. Pero honestamente,
 tan solo somos un puñado de nerdas que encuentran halagador ser consideradas
 tan excitantes.
 
-Casi todos los actos de BDSM puede ser considerado ilegal, poniendo a las
+Casi todos los actos de BDSM pueden ser considerados ilegales, poniendo a las
 personas peculiares en peligro, no solo de campañas de desprestigio, perdida
 de empleos y de custodia de infantil, sino también de encarcelamiento.
 Entonces, sí, la mayoría de nosotras existimos en espacios secretos bajo
@@ -92,21 +92,21 @@ enganchar. Yo sé que nunca voy a lograr todo lo que está en mi lista
 peculiaridades. La naturaleza abundante, pero específica, de mis deseos
 peculiares me reconforta.
 
-Algunos de mis compañeros de juego nunca me ven desvestida. A ninguno de ellos
+Algunas de mis acompañantes de juego nunca me ven desvestida. A ninguna de ellas
 les doy mi nombre. Mi cara no aparece en perfiles de citas, uso múltiples
 direcciones de correo electrónico y aplicaciones de mensajería para proteger mi
 nombre legal y mi privacidad.<sup>9</sup>
 
-Sin si quiera una cara en un perfil, las primeras citas son comunes y cortas.
+Sin siquiera una cara en un perfil, las primeras citas son comunes y cortas.
 Nos encontramos en público, en algún lugar donde no soy conocida, por cerca de
 una hora. Siempre puedo extender el tiempo, pero mi cita no. Yo puedo romper mi
 regla de nunca jugar en una primera cita, pero mi acompañante mejor que ni lo
 pregunte.
 
 Mis citas siempre quieren saber mi criterio, como si fuera muy diferente de
-tener citas no peculiares. Mis compañeros de juego deben ser inteligentes,
-respetuosos, confiables. Es decepcionante cuando tengo que decirle que no a
-alguien que me gusta porque no puedo confiar en él. Una mención a armas, mal
+tener citas no peculiares. Mis acompañantes de juego deben ser inteligentes,
+respetuosas, confiables. Es decepcionante cuando tengo que decirle que no a
+alguien que me gusta porque no puedo confiar en ella. Una mención a armas, mal
 trato a amantes anteriores, o paranoia sobre doxxing<sup>10</sup> termina
 nuestra tarde.
 
@@ -116,15 +116,15 @@ en cómo ser más cuidadosa. Podría esconder la placa de mi carro. Podría nega
 a dar una foto de mi cara<sup>11</sup>. Pero quiero sentirme en control, y eso
 requiere un poquito de fe.
 
-No puedo divertirme si no me permito confiar en mi compañero. Yo se que
+No puedo divertirme si no me permito confiar en mi acompañante. Yo se que
 eventualmente seguiré hacia adelante. No puedo ponerme en la posición de
 preocuparme sobre una venganza. En mi práctica de BDSM, yo abro por la fuerza a
-mis compañeros para saquear sus emociones y deseos temidos desde hace mucho
+mis acompañantes para saquear sus emociones y deseos temidos desde hace mucho
 tiempo. Algunos hombres no son lo suficientemente fuertes para soportarlo.
 Algunos lo son, pero luego se sienten usados cuando se termina. (Las mujeres
 parecen menos peligrosas de esta forma, tal vez porque a las mujeres se les
-permite someterse sexualmente). Tengo que escoger compañeros fuertes que se
-entienden a sí mismos, tanto porque son más divertidos y porque es menos
+permite someterse sexualmente). Tengo que escoger acompañantes fuertes que se
+entienden a sí mismas, tanto porque son más divertidas y porque es menos
 probable que me tiren por la habitación o que paguen a una investigadora
 privada para averiguar sobre mi identidad.
 
@@ -135,7 +135,7 @@ explotar de alegría y excitación.
 
 ***
 
-Carolina del Norte tuvo si giro conservador cuatro años antes que el resto de
+Carolina del Norte tuvo su giro conservador cuatro años antes que el resto de
 los Estados Unidos de América, culminando con una sesión legislativa de
 emergencia que creó el «House Bill 2» (HB2), una ley que se extralimita,
 diseñada para quitarnos muchos derechos civiles, especialmente nuestro derecho
@@ -193,7 +193,7 @@ especialmente a las afectadas por HB2. Me reprocho a mi misma por perforar mi
 reputación y arruinar mis oportunidades de ayudar.
 
 Estoy acostumbrada a sentirme como una mala persona porque siento lujuria hacia
-las mujeres, porque quiero controlar y lastimar a mis compañeros sexuales, y
+las mujeres, porque quiero controlar y lastimar a mis acompañantes sexuales, y
 porque nací mujer. Examino cada encuentro y trato de borrarlo, convirtiéndolo
 en algo ajeno a mi, pero tengo una mancha que nunca saldrá. Soy peculiar, no es
 sólo algo que hice.
