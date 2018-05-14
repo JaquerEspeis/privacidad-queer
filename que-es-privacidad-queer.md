@@ -55,7 +55,7 @@ vigilancia del estado. Las comunidades «queer» con frecuencia desean esconder
 cosas de algunas de sus familiares y amistades, mientras que también desean
 poder compartir partes de su vida con otras.
 
-Hacer amistades, tener citas, escapar situaciones abusivas, accesar a servicios
+Hacer amistades, tener citas, escapar situaciones abusivas, acceder a servicios
 de salud, explorarse a sí mismas y a otras, encontrar trabajos, realizar
 trabajo sexual seguro, todas son aspectos de las vidas «queer» desatendidos
 por la comunidad moderna de privacidad.
