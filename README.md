@@ -13,6 +13,7 @@ quienes son.
  * [Acerca de las autoras](acerca-de-autoras.md)
  * [¿Quien debería leer este libro?](quien-deberia-leer.md)
  * [Privacidad, perversión y poder, *por Ada Collins*](privacidad-perversion-poder.md)
+ * [Explorando el poliamor en privado, *por Audrey Howard*](explorando-poliamor.md)
 
 ## Mantenedor
 
