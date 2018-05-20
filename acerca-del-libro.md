@@ -6,11 +6,11 @@ las personas que intersecan con ser «Queer».
 Aunque hay una tendencia en los medios modernos de usar el ser «queer» sólo
 para referirse a las sexualidades no heterosexuales, es importante afirmar que
 «Queer», como lo usamos en este libro, es inclusivo a aquellas personas no
-son cisgénero<sup>1</sup>, incluyendo transgénero<sup>2</sup>,
-intersexuales<sup>3</sup>, no binarias<sup>4</sup> y/o de dos
-espíritus<sup>5</sup>.
+son cisgénero<sup>2</sup>, incluyendo transgénero<sup>3</sup>,
+intersexuales<sup>4</sup>, no binarias<sup>5</sup> y/o de dos
+espíritus<sup>6</sup>.
 
-Yo no estoy aquí para definir el ser «queer»<sup>6</sup>, toda la palabra es
+Yo no estoy aquí para definir el ser «queer»<sup>7</sup>, toda la palabra es
 para mi una renuncia a clasificaciones y categorizaciones, pero para el
 propósito de este libro, el ser «queer» se refiere a ser o ser visto como no
 cisgénero y/o no heterosexual.
@@ -35,19 +35,19 @@ Gracias por leer.
 
 ***
 
-<sup>1</sup>Persona cisgénero: una persona cuya identidad de género concuerda
+<sup>2</sup>Persona cisgénero: una persona cuya identidad de género concuerda
 con su sexo asignado al nacer.
-<sup>2</sup>Persona transgénero: una persona cuya identidad de género está en
+<sup>3</sup>Persona transgénero: una persona cuya identidad de género está en
 conflicto con su sexo asignado al nacer.
-<sup>3</sup>Persona intersexual: una persona cuya biología no se alinea con la
+<sup>4</sup>Persona intersexual: una persona cuya biología no se alinea con la
 definición tradicional de sexo de la sociedad.
-<sup>4</sup>Persona no binaria: una persona cuya identidad de género no calza
+<sup>5</sup>Persona no binaria: una persona cuya identidad de género no calza
 dentro de la clasificación binaria de género (e.g. hombre o mujer). Es un
 término general que incluye a quienes no se identifican con ningún género.
-<sup>5</sup>Dos espíritus es un término moderno usado por algunas indígenas
+<sup>6</sup>Dos espíritus es un término moderno usado por algunas indígenas
 norteamericanas para describir ciertas personas espirituales – gay, lesbianas,
 bisexuales y de género variante – en sus comunidades.
-<sup>6</sup>Muchas autoras a través de este libro se refieren a la comunidad
+<sup>7</sup>Muchas autoras a través de este libro se refieren a la comunidad
 «queer» con sus propios términos y acrónimos, e.g., LGBT, LGBTI, LGBTQ, etc.
 En su mayoría he escogido mantener esto para reflejar la diversidad de términos
 dentro de la comunidad, pero pueden y deben ser leídos como inclusivos de todas

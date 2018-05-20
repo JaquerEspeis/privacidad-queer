@@ -42,11 +42,11 @@ tratada como un Xbox - un objeto pulcro esperando el guión de alguien más. Las
 mujeres dominantes no aceptan fácilmente cualquier tipo de inserción. El arte de
 la dominación es un proceso creativo, y las dominantes se deleitan en la
 sorpresa. Si el sumiso simplemente quiere una actriz, tendrá que contratar
-una<sup>7</sup>.
+una<sup>8</sup>.
 
 ***
 
-Yo soy pansexual<sup>8</sup> y no binaria, la pareja de identidad más no
+Yo soy pansexual<sup>9</sup> y no binaria, la pareja de identidad más no
 identificadora . Puedo tener citas con cualquier género y tener cualquier
 género. Puedo escoger calzar en una iglesia, en reuniones de escolares, y en la
 fina fiesta del Cinco de Mayo del vecindario de los ex suegros. y cuando paso,
@@ -95,7 +95,7 @@ peculiares me reconforta.
 Algunas de mis acompañantes de juego nunca me ven desvestida. A ninguna de ellas
 les doy mi nombre. Mi cara no aparece en perfiles de citas, uso múltiples
 direcciones de correo electrónico y aplicaciones de mensajería para proteger mi
-nombre legal y mi privacidad.<sup>9</sup>
+nombre legal y mi privacidad.<sup>10</sup>
 
 Sin siquiera una cara en un perfil, las primeras citas son comunes y cortas.
 Nos encontramos en público, en algún lugar donde no soy conocida, por cerca de
@@ -107,13 +107,13 @@ Mis citas siempre quieren saber mi criterio, como si fuera muy diferente de
 tener citas no peculiares. Mis acompañantes de juego deben ser inteligentes,
 respetuosas, confiables. Es decepcionante cuando tengo que decirle que no a
 alguien que me gusta porque no puedo confiar en ella. Una mención a armas, mal
-trato a amantes anteriores, o paranoia sobre doxxing<sup>10</sup> termina
+trato a amantes anteriores, o paranoia sobre doxxing<sup>11</sup> termina
 nuestra tarde.
 
 Tengo montado un sistema suficiente para constituir una práctica supersticiosa.
 Se que no me protegerá de forma absoluta. Prefiero estar a gusto que enfocarme
 en cómo ser más cuidadosa. Podría esconder la placa de mi carro. Podría negarme
-a dar una foto de mi cara<sup>11</sup>. Pero quiero sentirme en control, y eso
+a dar una foto de mi cara<sup>12</sup>. Pero quiero sentirme en control, y eso
 requiere un poquito de fe.
 
 No puedo divertirme si no me permito confiar en mi acompañante. Yo se que
@@ -229,13 +229,13 @@ grieta suficientemente grande en la heteronormatividad para que otras tengan un
 vistazo de lo que es posible.
 
 ***
-<sup>7</sup>conocidas como pro-domme o dominatrix.
-<sup>8</sup>La pansexualidad es la atracción sexual, romántica o emocional
+<sup>8</sup>conocidas como pro-domme o dominatrix.
+<sup>9</sup>La pansexualidad es la atracción sexual, romántica o emocional
 hacia personas sin importar su sexo o identidad de género.
-<sup>9</sup>(Por supuesto, también estoy protegiendo la fantasía de mi misma.
+<sup>10</sup>(Por supuesto, también estoy protegiendo la fantasía de mi misma.
 Mis pretendientes no quieren confrontar la yo doméstica).
-<sup>10</sup>Nota de la editora: Doxxing (o doxing) es la práctica de descubrir
+<sup>11</sup>Nota de la editora: Doxxing (o doxing) es la práctica de descubrir
 y difundir información identificadora privada y sensible sobre una persona o
 grupo, usualmente con la intención de dañarles.
-<sup>11</sup>Por supuesto, es una foto que no ha estado en ningún otro lugar en
+<sup>12</sup>Por supuesto, es una foto que no ha estado en ningún otro lugar en
 la web. ¡El diablo está en la búsqueda reversa de imágenes!
