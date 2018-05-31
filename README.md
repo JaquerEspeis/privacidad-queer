@@ -19,6 +19,8 @@ quienes son.
 [@dtec83](https://github.com/dtec83), con contribuciones de:
 
 * [@elopio](https://github.com/elopio)
+* [@nitos](https://github.com/nitos)
+* [@fmonge](https://github.com/fmonge)
 
 ## Contribuír
 
