@@ -30,8 +30,8 @@ embargo, para mi pareja y para mi es algo que encontramos excitante y deseable
 conforme entramos en nuestros treintas. Esto es en parte debido al hecho de
 que, en años recientes, ambas hemos venido a darnos cuenta de que somos
 bisexuales. Descubrir esto mientras estamos en una relación comprometida y a
-largo plazo ha sido complicado y confuso, pero es algo que ambas hemos abrazado
-en nosotras mismas y en la otra.
+largo plazo ha sido complicado y confuso, pero es algo en lo que ambas nos
+hemos apoyado tanto hacia nosotras mismas como una con la otra.
 
 Encontrar una comunidad en línea de mujeres «queer» y de personas con género no
 formativo—particularmente en Twitter y Tumblr me ha ayudado en grande a abrazar
