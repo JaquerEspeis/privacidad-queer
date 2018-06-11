@@ -38,7 +38,7 @@ formativo—particularmente en Twitter y Tumblr me ha ayudado en grande a abraza
 el ser bisexual.
 
 Hablar con personas como yo, oír sus historias, verles siendo «queer» en mi
-línea temporal cada día sin pedir disculpas hizo cada vez más fácil para me no
+línea temporal cada día sin pedir disculpas hizo cada vez más fácil para mi no
 sólo aceptar ser bisexual, sino estar orgullosa de eso.
 
 Ahora, ser bisexual y estar alrededor de compañeras «queer» (aunque sea sólo en
@@ -130,7 +130,7 @@ hacemos público? Las amistades y familiares podrían no poder aceptar esta nuev
 versión de nosotras, pero no es justo para nadie tener que esconder quiénes
 somos o a quién amamos.
 
-Mantener privacidad cuando vamos a casa va a ser complicado, por decir menos.
+Mantener privacidad cuando vayamos a casa va a ser complicado, por decir menos.
 Pero gracias a las experiencias que he tenido en aplicaciones de citas y al
 ir a citas al otro lado del océano, cada vez me siento más segura de quién soy.
 Con un poco más de tiempo para explorar esta nueva vida privada, me podría
