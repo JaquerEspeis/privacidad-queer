@@ -14,6 +14,7 @@ quienes son.
  * [¿Quien debería leer este libro?](quien-deberia-leer.md)
  * [¿Qué es privacidad «queer»?](que-es-privacidad-queer.md)
  * [Privacidad, perversión y poder, *por Ada Collins*](privacidad-perversion-poder.md)
+ * [Explorando el poliamor en privado, *por Audrey Howard*](explorando-poliamor.md)
  * [Skylar](skylar.md)
 
 ## Mantenedor
