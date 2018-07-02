@@ -326,7 +326,7 @@ activistas y organizaciones trans&ast; en Washington, DC.
 
 <sup>76</sup>https://transgenderlawcenter.org/
 
-<sup>77<sup>Por ejemplo,
+<sup>77</sup>Por ejemplo,
 [Electronic Frontier Foundation (EFF) se asoció con el Transgender Law Center para reformar la política de «nombre real» de Facebook](https://transgenderlawcenter.org/archives/11144),
 además de su
 [pieza sobre las preocupaciones por la política de Facebook](https://www.eff.org/deeplinks/2014/09/facebooks-real-name-policy-can-cause-real-world-harm-lgbtq-community).
