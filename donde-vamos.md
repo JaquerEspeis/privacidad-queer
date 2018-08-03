@@ -114,3 +114,8 @@ Yo no pienso irme callada hacia la oscuridad. Tampoco usted debería.
 La existencia es resistencia.
 
 Bienvenida al Futuro.
+
+***
+
+<sup>83</sup>https://whispersystems.org/
+<sup>84</sup>https://torproject.org
