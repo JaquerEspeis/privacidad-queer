@@ -230,12 +230,16 @@ vistazo de lo que es posible.
 
 ***
 <sup>8</sup>conocidas como pro-domme o dominatrix.
+
 <sup>9</sup>La pansexualidad es la atracción sexual, romántica o emocional
 hacia personas sin importar su sexo o identidad de género.
+
 <sup>10</sup>(Por supuesto, también estoy protegiendo la fantasía de mi misma.
 Mis pretendientes no quieren confrontar la yo doméstica).
+
 <sup>11</sup>Nota de la editora: Doxxing (o doxing) es la práctica de descubrir
 y difundir información identificadora privada y sensible sobre una persona o
 grupo, usualmente con la intención de dañarles.
+
 <sup>12</sup>Por supuesto, es una foto que no ha estado en ningún otro lugar en
 la web. ¡El diablo está en la búsqueda reversa de imágenes!
