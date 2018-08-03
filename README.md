@@ -59,3 +59,5 @@ el proyecto de la autora.
 ***
 
 Hecho con :rainbow: por [JáquerEspeis](https://github.com/jaquerespeis).
+
+[Siguiente: Reconocimientos y créditos](reconocimientos-creditos.md)
