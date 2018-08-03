@@ -10,26 +10,26 @@ de segundo año de colegio, y como de género «queer» en mi último año, segu
 por salir como un chico trans y no binario después - esto no lo hice sólo.
 
 Fue parte de un intercambio de día y vuelta; experiencias compartidas de las
-cuales ahora soy sólo la mitad restante. Como una activista que además apoya
+cuales ahora soy sólo la mitad restante. Como un activista que además apoya
 la transparencia, privacidad y anonimidad, que interseca con mi identidad
 «queer» y trans, estoy peleando por la otra mitad para prevenir el borrar
 nuestras historias y para deshacer los fallos en las otras comunidades
 interseccionales a las que pertenezco.
 
-A través de los medios hemos estado condicionadas a aceptar historias con
+A través de los medios hemos estado condicionados a aceptar historias con
 trayectorias y narrativas predecibles, el clímax final de dónde debe la
 protagonista hacer algo para retar al mal en el mundo, hacer que termine en un
 final feliz.
 
 No queremos ver noticias y pensar que un problema no terminará nunca por
-completo, ni muchas de nosotras pensamos que hay más que un titular o lo que
+completo, ni muchos de nosotros pensamos que hay más que un titular o lo que
 los medios nos dicen.
 
 Luego, hay temas y asuntos que consideramos tabú o sensibles de discutir, y se
 nos dice que nunca hablemos de eso. Temas como suicidio, salud mental, abuso
-doméstico y violencia. Debemos permanecer calladas para preservar la dignidad
+doméstico y violencia. Debemos permanecer callados para preservar la dignidad
 de todas las partes y respetar a las muertas. Argumentar y pelear es ser
-incivil y grosera.
+incivil y grosero.
 
 ***
 
@@ -80,13 +80,13 @@ mi primer año.
 Como hacen las activistas y hermanos, nosotros tuvimos nuestros desacuerdos en
 los distintos problemas que enfrentamos. Eso estaba bien, pensé, mi hermano
 nada más necesitaba tiempo para crecer. Tuvimos una primavera e inicio de verano
-muy duro juntas luego de estar en desacuerdo sobre un tema en el que mi
+muy duro juntos luego de estar en desacuerdo sobre un tema en el que mi
 hermano tenía fuertes opiniones y que provocaba como excusa del por qué mi
 hermana no podía usar mis pronombres correctos. A pesar de esos problemas yo
 salí como trans, tuvimos a nuestro perro–Nugget, diminutivo de nugget de pollo–
 que hizo que nos uniéramos inmediatamente, luego dos semanas después mi
 hermano me vio caminar a través del escenario de la graduación en dónde después
-comimos pizza de macarrones y queso juntas.
+comimos pizza de macarrones y queso juntos.
 
 Días después yo estaba en un viaje a la costa este dejando atrás a mi hermano.
 Un mes después ellos también salieron como trans y no binarios. Salieron como
@@ -108,7 +108,7 @@ Los domingos consistían en tratar de esconderse bajo la cama o en armarios.
 *Puños, vociferaciones, gritos*. Queríamos jugar juegos en la internet, no ir
 a una iglesia en la que el odio era escupido en las bancas y en los chismes.
 
-Siendo perseguida. Mi primer recuerdo es uno de terror cuando trataba de
+Siendo perseguido. Mi primer recuerdo es uno de terror cuando trataba de
 esconderme bajo las sábanas en mi cuarto cuando mi madre de nacimiento gritaba
 y aporreaba sus puños, rasguñándome para quitar la sábana que me protegía,
 arrastrándome a la sala. *Puños, vociferaciones, gritos*. Con frecuencia, mi
@@ -166,8 +166,7 @@ Eiffel para xir. En ese momento, trabajaba en las aerolíneas y con beneficios
 de vuelos pretendía reunirnos, comer waffles y ofrecerle que usáramos mis
 beneficios, que se me uniera en la costa este e ir a Francia, si xe quería que
 yo obtuviera su custodia. Después de enfermarme, el viaje se pospuso una
-semana,
-haciéndolo de 470 a 471 días desde que me fui.
+semana, haciéndolo de 470 a 471 días desde que me fui.
 
 Lunes, 28 de setiembre de 2015, 468 días desde que me fui.
 
@@ -200,7 +199,7 @@ de salón avanzado» en este, aunque xe no había bailado por años porque esto 
 cosa de ella, no de él. El funeral fue viernes, a unas cuantas cuadras de mi
 colegio. Riendo inapropiadamente y diciendo cosas aleatorias mientras la gente
 daba sus condolencias. Dos días después la cremación del cuerpo de Skylar. Al
-día siguiente, una semana dese que la pesadilla empezó, cumplí 20 años de edad
+día siguiente, una semana desde que la pesadilla empezó, cumplí 20 años de edad
 y recibí la cuenta del funeral, cenizas y pagué por el lote de entierro. Tres
 días de abrazar la urna después, le enterramos. Yo puse los dos primeros
 puñados de tierra para asegurar que el listón de arco iris de nuestro escritorio
