@@ -107,27 +107,51 @@ Además, sin embargo, me preocupa sobre todo a dónde puede conducir esto. El Re
 
 
 <sup>13</sup> https://www.theguardian.com/world/2016/dec/25/british-councils-usedinvestigatory-powers-ripa-to-secretly-spy-on-public
+
 <sup>14</sup>*Nota de la Editora:* La Ley de Regulación de los Poderes de Investigación (RIPA) es una Ley del Parlamento del Reino Unido que regula los poderes de los organismos públicos para llevar a cabo la vigilancia.
+
 <sup>15</sup> http://www.bbc.co.uk/news/uk-england-dorset-10839104
+
 <sup>16</sup> https://www.bigbrotherwatch.org.uk/TheGrimRIPA.pdf
+
 <sup>17</sup> https://bigbrotherwatch.org.uk
+
 <sup>18</sup> https://www.bigbrotherwatch.org.uk/TheGrimRIPA.pdf
+
 <sup>19</sup>*Nota de la Editora:* El Cuartel General de Comunicaciones del Gobierno (GCHQ) es una organización británica de inteligencia y seguridad encargada de proporcionar señales de inteligencia  (SIGINT) y garantía de información al gobierno británico y las fuerzas armadas.
+
 <sup>20</sup> https://www.nao.org.uk/report/protecting-information-across-government/
+
 <sup>21</sup> https://www.parliament.uk/site-information/data-protection/
+
 <sup>22</sup> https://haveibeenpwned.com/
+
 <sup>23</sup> https://en.wikipedia.org/wiki/Yahoo!_data_breaches
+
 <sup>24</sup> https://techcrunch.com/2016/05/31/recently-confirmed-myspace-hack-could-bethe-largest-yet/
+
 <sup>25</sup> https://en.wikipedia.org/wiki/2012_LinkedIn_hack
+
 <sup>26</sup> https://motherboard.vice.com/en_us/article/hackers-stole-over-60-million-dropboxaccounts
+
 <sup>27</sup> https://motherboard.vice.com/en_us/article/hackers-stole-68-million-passwordsfrom-tumblr-new-analysis-reveals
+
 <sup>28</sup> https://en.wikipedia.org/wiki/Ashley_Madison_data_breach
+
 <sup>29</sup> *Nota de la Editora:* Este ensayo fue escrito antes de marzo de 2017. Desde entonces, el gobierno del Reino Unido ha debatido enmendar el proyecto de ley para solo legislar para evitar el acceso a la «pornografía extrema».
+
 <sup>30</sup> https://motherboard.vice.com/en_us/article/another-day-another-hack-passwordsand-sexual-desires-for-dating-site-fling
+
 <sup>31</sup> https://www.forbes.com/sites/thomasbrewster/2016/04/14/naughty-americafappening-hacked-porn-sites/#69e28f2c714f
+
 <sup>32</sup> http://www.theinquirer.net/inquirer/news/2478759/xhamster-hack-380-000-accounts-exposed-in-porn-site-breach
+
 <sup>33</sup> https://motherboard.vice.com/en_us/article/nearly-800000-brazzers-porn-siteaccounts-exposed-in-forum-hack
+
 <sup>34</sup> http://www.zdnet.com/article/adultfriendfinder-network-hack-exposes-secrets-of-412-million-users/
+
 <sup>35</sup> http://www.huffingtonpost.com/2012/02/22/youporn-hacked-email-addressespasswords_n_1294502.html
+
 <sup>36</sup> https://motherboard.vice.com/en_us/article/another-day-another-hack-furry-sitehacked-content-deleted
+
 <sup>37</sup> https://torproject.org
