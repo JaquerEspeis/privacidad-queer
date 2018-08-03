@@ -12,12 +12,15 @@ quienes son.
  * [Acerca de este libro](acerca-del-libro.md)
  * [Acerca de las autoras](acerca-de-autoras.md)
  * [¿Quien debería leer este libro?](quien-deberia-leer.md)
- * [¿Qué es privacidad «queer»?](que-es-privacidad-queer.md)
+ * [¿Qué es privacidad «queer»?, *por Sarah Jamie Lewis*](que-es-privacidad-queer.md)
  * [Privacidad, perversión y poder, *por Ada Collins*](privacidad-perversion-poder.md)
+ * [Lo que tiene un nombre, *por Kath Rella*](lo-que-tiene-un-nombre.md)
  * [Explorando el poliamor en privado, *por Audrey Howard*](explorando-poliamor.md)
- * [Skylar](skylar.md)
+ * [Skylar, *por Avi Zajac*](skylar.md)
+ * [Privacidad en los márgenes, *por Morgan Potts*](privacidad-margenes.md)
+ * [El mito del Trol Anónimo, *por Violet Hargrave*](el-mito-del-trol-anonimo.md)
  * [Seguridad digital para comunidades trans, *por Norman Shamas y activistas trans anónimas*](seguridad-digital.md)
- * [¿Dónde vamos a partir de aquí?, *por Sarah Jamie Lewis](donde-vamos.md)
+ * [¿Dónde vamos a partir de aquí?, *por Sarah Jamie Lewis*](donde-vamos.md)
 
 ## Mantenedor
 
