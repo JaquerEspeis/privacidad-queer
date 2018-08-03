@@ -120,4 +120,6 @@ Bienvenida al Futuro.
 <sup>83</sup>https://whispersystems.org/
 <sup>84</sup>https://torproject.org
 
+***
+
 [Previo: Seguridad digital para comunidades trans&ast;](seguridad-digital.md)

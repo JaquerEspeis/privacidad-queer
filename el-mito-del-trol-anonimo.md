@@ -83,5 +83,6 @@ El problema nunca ha sido que el anonimato permita a las personas abusivas evita
 
 <sup>59</sup> http://the-orbit.net/metaphoricalpenis/2016/04/27/cathy-brennan-fake-goth/
 
+***
 
 [Previo: Privacidad en los márgenes](privacidad-margenes.md) | [Siguiente: Seguridad digital para comunidades trans&ast;](seguridad-digital.md)

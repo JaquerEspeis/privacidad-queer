@@ -13,4 +13,6 @@ La ilustración de la portada es de Marisa Erven<sup>1</sup>.
 
 <sup>1</sup>https://marisaerven.com
 
+***
+
 [Previo: Tabla de contenidos](README.md) | [Siguiente: Acerca de este libro](acerca-del-libro.md)

@@ -244,4 +244,6 @@ grupo, usualmente con la intención de dañarles.
 <sup>12</sup>Por supuesto, es una foto que no ha estado en ningún otro lugar en
 la web. ¡El diablo está en la búsqueda reversa de imágenes!
 
+***
+
 [Previo: ¿Qué es privacidad «queer»?](que-es-privacidad-queer.md) | [Siguiente: Lo que tiene un nombre](lo-que-tiene-un-nombre.md)

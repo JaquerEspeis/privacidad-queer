@@ -55,6 +55,7 @@ este libro en sus propias palabras:
 
  * **Norman Shamas** es un activista y educador cuyo trabajo se enfoca en la
    información centrada en humanas/seguridad digital y privacidad.
-   
+
+***
 
 [Previo: Acerca de este libro](acerca-del-libro.md) | [Siguiente: ¿Quién debería leer este libro?](quien-deberia-leer.md)

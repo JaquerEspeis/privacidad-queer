@@ -1,4 +1,4 @@
-# ¿Qué es privacidad «queer»? *por Sarah Jamie Lewis*
+G# ¿Qué es privacidad «queer»? *por Sarah Jamie Lewis*
 
 *Nada sobre nosotras, sin nosotras.*
 
@@ -87,5 +87,7 @@ personas cuyo único crimen es tratar de vivir en un mundo que cree que su
 sexualidad y/o identidad de género es ilegitima.
 
 Esto es Privacidad «queer».
+
+***
 
 [Previo: ¿Quién debería leer este libro?](quien-deberia-leer.md) | [Siguiente: Privacidad, perversión y poder](privacidad-perversion-poder.md)

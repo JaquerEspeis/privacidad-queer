@@ -1,4 +1,4 @@
-# Explorando el poliamor en privado *por Audrey Howard*
+G# Explorando el poliamor en privado *por Audrey Howard*
 
 *Hemos disfrutando tanto ser abiertamente bisexuales y poliamorosas que volver
 a una vida de monogamia y esconder quienes somos parece casi impensable*
@@ -147,5 +147,7 @@ derecho.
 <sup>38</sup>https://www.okcupid.com/
 
 <sup>39</sup>https://www.gotinder.com/
+
+***
 
 [Previo: Lo que tiene un nombre](lo-que-tiene-un-nombre.md) | [Siguiente: Skylar](skylar.md)
