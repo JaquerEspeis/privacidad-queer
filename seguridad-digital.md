@@ -95,7 +95,7 @@ usuaria trans&ast;<sup>70</sup>
 
 Los recursos disponibles que he revisado no brindan ninguna asistencia en la
 creación y mantenimiento de identidades en una forma que sea inclusiva a
-trans&ast; (en algunos caso a pesar de sus afirmaciones<sup>71</sup>). El modelo
+trans&ast; (en algunos casos a pesar de sus afirmaciones<sup>71</sup>). El modelo
 de amenaza al que se dirigen estos recursos típicamente es la creación de
 una nueva o falsa identidad para aislar activistas atacadas por troles y
 movimientos misóginos en línea, tales como Gamergate. Aunque es un modelo de amenaza válido e importante, es muy diferente de las necesidades de las
@@ -234,7 +234,7 @@ una expansión de cómo la identidad digital es discutida. En este momento, el
 enfoque está en cajas de arena rígidas a través de herramientas como Qubes
 OS<sup>82</sup>. Aunque Qubes tiene un lugar en la seguridad digital y
 privacidad para comunidades trans&ast;, también son necesarias herramientas que
-permitan una límite de identidad más flexible y permeable, y recursos que
+permitan un límite de identidad más flexible y permeable, y recursos que
 ayuden a administrar datos de identidades que ya existen y estén potencialmente
 fuera del control de la usuaria.
 
@@ -247,7 +247,7 @@ trans&ast; a alzar su voz y unirse a la conversación para aumentar las
 herramientas inclusivas a trans&ast; disponibles.
 
 ***
-<sup>60</sup>Nota de la editora: Trans&ast; es un termino general usado por
+<sup>60</sup>Nota de la editora: Trans&ast; es un término general usado por
 algunas para referirse a todas las identidades dentro del espectro de género,e.g. transgénero, transfemenino, transmasculino, bigénero, andrógeno, etc.
 
 <sup>61</sup>Por la naturaleza de mis experiencias, estoy hablando
