@@ -105,6 +105,7 @@ Ahora, personas como yo tenemos que temer al gobierno, que se supone que nos deb
 
 Además, sin embargo, me preocupa sobre todo a dónde puede conducir esto. El Reino Unido afirma defender la libertad, pero si tal asalto contra la privacidad todavía se considera parte de las acciones de un país libre, ¿qué otras libertades se eliminarán a continuación?
 
+***
 
 <sup>13</sup> https://www.theguardian.com/world/2016/dec/25/british-councils-usedinvestigatory-powers-ripa-to-secretly-spy-on-public
 
