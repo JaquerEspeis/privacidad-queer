@@ -52,3 +52,5 @@ bisexuales y de género variante – en sus comunidades.
 En su mayoría he escogido mantener esto para reflejar la diversidad de términos
 dentro de la comunidad, pero pueden y deben ser leídos como inclusivos de todas
 las identidades «queer».
+
+[Previo: Reconocimientos y créditos](reconocimientos-creditos.md) | [Siguiente: Acerca de las autoras](acerca-de-autoras.md)
