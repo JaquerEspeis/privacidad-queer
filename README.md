@@ -15,6 +15,9 @@ quienes son.
  * [¿Qué es privacidad «queer»?](que-es-privacidad-queer.md)
  * [Privacidad, perversión y poder, *por Ada Collins*](privacidad-perversion-poder.md)
  * [Explorando el poliamor en privado, *por Audrey Howard*](explorando-poliamor.md)
+ * [Skylar](skylar.md)
+ * [Seguridad digital para comunidades trans, *por Norman Shamas y activistas trans anónimas*](seguridad-digital.md)
+ * [¿Dónde vamos a partir de aquí?, *por Sarah Jamie Lewis](donde-vamos.md)
 
 ## Mantenedor
 
@@ -24,7 +27,7 @@ quienes son.
 * [@nitos](https://github.com/nitos)
 * [@fmonge](https://github.com/fmonge)
 
-## Contribuír
+## Contribuir
 
 La traducción de este libro la estamos haciendo en comunidad. Invitamos a
 participar a todas las personas que quieran colaborar.
