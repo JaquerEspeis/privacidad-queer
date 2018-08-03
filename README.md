@@ -24,7 +24,7 @@ quienes son.
 * [@nitos](https://github.com/nitos)
 * [@fmonge](https://github.com/fmonge)
 
-## Contribuír
+## Contribuir
 
 La traducción de este libro la estamos haciendo en comunidad. Invitamos a
 participar a todas las personas que quieran colaborar.
