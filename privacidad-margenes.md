@@ -55,6 +55,9 @@ Antes durante este mes<sup>43</sup> dí un taller sobre diceware en mi sala. Est
 ***
 
 <sup>41</sup> https://telegram.org/
+
 <sup>42</sup> https://signal.org/
+
 <sup>43</sup> Este artículo fue enviado a Mascherati Press en diciembre del 2016.
+
 <sup>44</sup> https://www.torproject.org/
