@@ -19,3 +19,5 @@ comunidades para fomentar la colaboración y el empoderamiento.
 acerca de personas, que viven en este planeta con usted. Personas que enfrentan
 retos que usted podría nunca haber pensado. El primer paso en hacer este mundo
 más justo, más igualitario y más libre es entendernos unas a otras.
+
+[Previo: Acerca de las autoras](acerca-de-autoras.md) | [Siguiente: ¿Qué es privacidad «queer»?](que-es-privacidad-queer.md)

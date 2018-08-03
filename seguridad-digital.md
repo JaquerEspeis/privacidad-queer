@@ -350,3 +350,5 @@ inclusivo a trans&ast; para hacer la campaña contra la política de Facebook.
 relacionada a este aspecto de manejo de identidad.
 
 <sup>82</sup>https://www.qubes-os.org/
+
+[Previo: El mito del Trol Anónimo](el-mito-del-trol-anonimo.md) | [Siguiente: ¿Dónde vamos a partir de aquí?](donde-vamos.md)

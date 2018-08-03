@@ -82,3 +82,6 @@ El problema nunca ha sido que el anonimato permita a las personas abusivas evita
 <sup>58</sup> https://www.theguardian.com/technology/2016/sep/12/facebook-blocks-shaun-king-black-lives-matter
 
 <sup>59</sup> http://the-orbit.net/metaphoricalpenis/2016/04/27/cathy-brennan-fake-goth/
+
+
+[Previo: Privacidad en los márgenes](privacidad-margenes.md) | [Siguiente: Seguridad digital para comunidades trans&ast;](seguridad-digital.md)

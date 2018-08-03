@@ -147,3 +147,5 @@ derecho.
 <sup>38</sup>https://www.okcupid.com/
 
 <sup>39</sup>https://www.gotinder.com/
+
+[Previo: Lo que tiene un nombre](lo-que-tiene-un-nombre.md) | [Siguiente: Skylar](skylar.md)

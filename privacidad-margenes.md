@@ -61,3 +61,5 @@ Antes durante este mes<sup>43</sup> dí un taller sobre diceware en mi sala. Est
 <sup>43</sup> Este artículo fue enviado a Mascherati Press en diciembre del 2016.
 
 <sup>44</sup> https://www.torproject.org/
+
+[Previo: Skylar](skylar.md) | [Siguiente: El mito del Trol Anónimo](el-mito-del-trol-anonimo.md)

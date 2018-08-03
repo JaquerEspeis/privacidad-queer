@@ -326,3 +326,5 @@ y cruda autenticidad e historias hasta mi propio final.
 ***
 <sup>40</sup>Nota de la editora: Xe/Xir/Xirs es un pronombre personal de género
 neutral para la tercera persona del singular.
+
+[Previo: Explorando el poliamor en privado](explorando-poliamor.md) | [Siguiente: Privacidad en los márgenes](privacidad-margenes.md)

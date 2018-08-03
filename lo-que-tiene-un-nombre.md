@@ -156,3 +156,5 @@ Además, sin embargo, me preocupa sobre todo a dónde puede conducir esto. El Re
 <sup>36</sup> https://motherboard.vice.com/en_us/article/another-day-another-hack-furry-sitehacked-content-deleted
 
 <sup>37</sup> https://torproject.org
+
+[Previo: Privacidad, perversión y poder](privacidad-perversion-poder.md) | [Siguiente: Explorando el poliamor en privado](explorando-poliamor.md)
