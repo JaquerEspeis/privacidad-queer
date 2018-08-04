@@ -29,6 +29,7 @@ quienes son.
 * [@elopio](https://github.com/elopio)
 * [@nitos](https://github.com/nitos)
 * [@fmonge](https://github.com/fmonge)
+* [@ardillas-ff](https://github.com/ardillas-ff)
 
 ## Contribuir
 
