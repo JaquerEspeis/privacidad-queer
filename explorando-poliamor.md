@@ -1,4 +1,4 @@
-G# Explorando el poliamor en privado *por Audrey Howard*
+# Explorando el poliamor en privado *por Audrey Howard*
 
 *Hemos disfrutando tanto ser abiertamente bisexuales y poliamorosas que volver
 a una vida de monogamia y esconder quienes somos parece casi impensable*
