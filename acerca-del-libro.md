@@ -37,16 +37,21 @@ Gracias por leer.
 
 <sup>2</sup>Persona cisgénero: una persona cuya identidad de género concuerda
 con su sexo asignado al nacer.
+
 <sup>3</sup>Persona transgénero: una persona cuya identidad de género está en
 conflicto con su sexo asignado al nacer.
+
 <sup>4</sup>Persona intersexual: una persona cuya biología no se alinea con la
 definición tradicional de sexo de la sociedad.
+
 <sup>5</sup>Persona no binaria: una persona cuya identidad de género no calza
 dentro de la clasificación binaria de género (e.g. hombre o mujer). Es un
 término general que incluye a quienes no se identifican con ningún género.
+
 <sup>6</sup>Dos espíritus es un término moderno usado por algunas indígenas
 norteamericanas para describir ciertas personas espirituales – gay, lesbianas,
 bisexuales y de género variante – en sus comunidades.
+
 <sup>7</sup>Muchas autoras a través de este libro se refieren a la comunidad
 «queer» con sus propios términos y acrónimos, e.g., LGBT, LGBTI, LGBTQ, etc.
 En su mayoría he escogido mantener esto para reflejar la diversidad de términos
