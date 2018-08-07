@@ -122,4 +122,4 @@ Bienvenida al Futuro.
 
 ***
 
-[Previo: Seguridad digital para comunidades trans&ast;](seguridad-digital.md)
+[Previo: Seguridad digital para comunidades trans&ast;](seguridad-digital.md) | [Siguiente: Mascherari Press](mascherari-press.md)
