@@ -26,3 +26,7 @@ Gracias por leer.
 ***
 
 <sup>85</sup>https://mascherari.press/
+
+***
+
+[Previo: ¿Dónde vamos a partir de aquí?](donde-vamos.md)
