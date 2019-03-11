@@ -31,22 +31,15 @@ quienes son.
 * [@nitos](https://github.com/nitos)
 * [@fmonge](https://github.com/fmonge)
 * [@ardillas-ff](https://github.com/ardillas-ff)
+* [@s-rah](https://github.com/s-rah)
 
 ## Contribuir
 
 La traducción de este libro la estamos haciendo en comunidad. Invitamos a
 participar a todas las personas que quieran colaborar.
 
-Si saben inglés y español, nos pueden ayudar
-[revisando las traducciones en progreso](https://github.com/JaquerEspeis/privacidad-queer/pulls).
-O pueden traducir un nuevo capítulo; para esto
-[reporten un issue](https://github.com/JaquerEspeis/privacidad-queer/issues/new)
-con el nombre del capítulo que quieren traducir, para que no dupliquemos el
-trabajo.
-
-Para quienes no saben inglés, igual nos pueden ayudar revisando las
-traducciones ya aceptadas, que van a encontrar en la
-[Tabla de contenido](#tabla-de-contenido).
+Nos pueden ayudar revisando las traducciones ya aceptadas, que van a encontrar 
+en la [Tabla de contenido](#tabla-de-contenido).
 
 Si tienen dudas sobre inclusividad, privacidad, github, el JáquerEspeis o cómo
 empezar a colaborar con este proyecto, también pueden
