@@ -1,6 +1,6 @@
 # ¿Quién debería leer este libro?
 
-Como una investigadora de privacidad «queer«, quien en otras ocasiones ha sido
+Como una investigadora de privacidad «queer», quien en otras ocasiones ha sido
 ingeniera de software e ingeniera de seguridad, pienso que todas las personas en
 todas estas áreas deberían leer este libro.
 
