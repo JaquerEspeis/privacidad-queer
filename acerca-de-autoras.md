@@ -25,7 +25,7 @@ este libro en sus propias palabras:
    Unido. Actualmente una cuidadora de tiempo completo, Kath tiene
    calificaciones en política y leyes, sociología, criminología y recientemente
    en escritura creativa. Es una ávida fanática de las películas, que prefiere
-   el cine mas oscuro y no masivo. En años recientes, Kath ha empezado con la
+   el cine más oscuro y no masivo. En años recientes, Kath ha empezado con la
    escritura creativa. Su guión de cortometraje, «Embrace It», fue finalista de
    la edición de 2016 de «Follow», y ella está trabajando actualmente en una
    novela oscura de fantasía, «Ashes of the Forgotten».
