@@ -1,11 +1,11 @@
 # Acerca de este libro
 
 En este libro les presento una colección de ensayos escritos por y acerca de
-las personas que intersecan con ser «Queer».
+las personas que intersecan con ser «queer».
 
 Aunque hay una tendencia en los medios modernos de usar el ser «queer» sólo
 para referirse a las sexualidades no heterosexuales, es importante afirmar que
-«Queer», como lo usamos en este libro, es inclusivo a aquellas personas que no
+«queer», como lo usamos en este libro, es inclusivo a aquellas personas que no
 son cisgénero<sup>2</sup>, incluyendo transgénero<sup>3</sup>,
 intersexuales<sup>4</sup>, no binarias<sup>5</sup> y/o de dos
 espíritus<sup>6</sup>.
