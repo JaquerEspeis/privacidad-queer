@@ -21,6 +21,7 @@ quienes son.
  * [El mito del Trol Anónimo, *por Violet Hargrave*](el-mito-del-trol-anonimo.md)
  * [Seguridad digital para comunidades trans, *por Norman Shamas y activistas trans anónimas*](seguridad-digital.md)
  * [¿Dónde vamos a partir de aquí?, *por Sarah Jamie Lewis*](donde-vamos.md)
+ * [Mascherari Press](mascherari-press.md)
 
 ## Mantenedor
 
