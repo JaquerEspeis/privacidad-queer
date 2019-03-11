@@ -1,4 +1,4 @@
-G# ¿Qué es privacidad «queer»? *por Sarah Jamie Lewis*
+# ¿Qué es privacidad «queer»? *por Sarah Jamie Lewis*
 
 *Nada sobre nosotras, sin nosotras.*
 
