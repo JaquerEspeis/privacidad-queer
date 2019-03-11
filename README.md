@@ -30,6 +30,7 @@ quienes son.
 * [@nitos](https://github.com/nitos)
 * [@fmonge](https://github.com/fmonge)
 * [@ardillas-ff](https://github.com/ardillas-ff)
+* [@s-rah](https://github.com/s-rah)
 
 ## Contribuir
 
