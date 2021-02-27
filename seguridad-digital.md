@@ -16,12 +16,12 @@ preguntadas.
 
 Para empezar, vamos de vuelta a enero de 2014 cuando
 [Grantland publicó un artículo que expuso a mujeres trans](http://grantland.com/features/a-mysterious-physicist-golf-club-dr-v/))<sup>62</sup>.
-Este artículo era nominalmente acerca de un «putter» de golf y sus afirmaciones
+Este artículo era nominalmente acerca de un palo de golf y sus afirmaciones
 de superioridad científica. Sin embargo, el artículo se volvió una
-investigación acerca de la creadora del «putter». Investigaciones que llevaron
+investigación acerca de la creadora del objeto. Investigaciones que llevaron
 a su contexto y al final «descubrieron» su transición.<sup>63</sup>. Todo esto
 fue parte de un artículo que estaba destinado a evaluar las afirmaciones de la
-ciencia del «putter», no de la científica.<sup>64</sup>
+ciencia de un palo de golf, y no de la científica.<sup>64</sup>
 
 Una de las partes más espantosas de este artículo es que este tipo de
 investigación en el contexto de una persona es una práctica aceptable en el
@@ -91,7 +91,7 @@ sus datos a Jumio requeriría alguna explicación sobre las diferencias de nombr
 sin la garantía de que será aceptada. ¿Está esta información disponible para
 otras clientes de Jumio quienes la usan para verificar identidades? Incluso si
 su cuenta es reactivada, ¿protegerá Airbnb su privacidad y derechos como
-usuaria trans&ast;<sup>70</sup>
+usuaria trans&ast;?<sup>70</sup>
 
 Los recursos disponibles que he revisado no brindan ninguna asistencia en la
 creación y mantenimiento de identidades en una forma que sea inclusiva a
